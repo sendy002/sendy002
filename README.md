@@ -1,0 +1,1 @@
+-https://github.com/user-attachments/files/17089948/tugas.kondat.docx
